@@ -4,6 +4,6 @@ title: About
 permalink: /about
 ---
 
-*This is an about page.*
+*About this site*
 
-Feel free to tell the world about what you love! 😍
+Site under development and intense scrutiny if it's really going to exist.
