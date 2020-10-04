@@ -5,7 +5,7 @@ id: home
 permalink: /
 ---
 
-# My notes!
+# Alencar's Notes
 
 These are notes or links I deemed relevant for any particular reason.
 
