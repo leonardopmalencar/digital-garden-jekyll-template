@@ -19,6 +19,8 @@ Could a Small City Become the [Next Silicon Valley? It’s Unlikely.](https://in
 
 Seeing Our Own Reflection in the [Birth of the Self-Portrait](https://www.nytimes.com/interactive/2020/09/25/arts/durer-self-portrait.html)
 
+Being Smart is [Not Enough](https://fs.blog/2020/09/being-smart-is-not-enough/)
+
 ...
 
 If you want to say hi: [Twitter (@leonardoalencar)](https://twitter.com/LeonardoAlencar)!
