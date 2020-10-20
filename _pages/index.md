@@ -23,6 +23,10 @@ Being Smart is [Not Enough](https://fs.blog/2020/09/being-smart-is-not-enough/)
 
 What My Sled Dogs Taught Me About [Planning for the Unknown](https://www.nytimes.com/2020/09/23/sports/sled-dogs-mushing-unknowns-planning.html)
 
+[The Tail End](https://waitbutwhy.com/2015/12/the-tail-end.html)
+
+["I hate this restaurant"](https://seths.blog/2020/10/i-hate-this-restaurant/)
+
 ...
 
 If you want to say hi: [Twitter (@leonardoalencar)](https://twitter.com/LeonardoAlencar)!
