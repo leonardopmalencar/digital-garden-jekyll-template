@@ -27,6 +27,8 @@ What My Sled Dogs Taught Me About [Planning for the Unknown](https://www.nytimes
 
 ["I hate this restaurant"](https://seths.blog/2020/10/i-hate-this-restaurant/)
 
+On the weight of the world and the weight of the sky: [Choose joy](https://www.brainpickings.org/2020/10/21/14-years-of-brain-pickings/?mc_cid=9120b57aeb&mc_eid=8ca2cbfe7e)
+
 ...
 
 If you want to say hi: [Twitter (@leonardoalencar)](https://twitter.com/LeonardoAlencar)!
