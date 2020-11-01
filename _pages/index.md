@@ -29,6 +29,10 @@ What My Sled Dogs Taught Me About [Planning for the Unknown](https://www.nytimes
 
 On the weight of the world and the weight of the sky: [Choose joy](https://www.brainpickings.org/2020/10/21/14-years-of-brain-pickings/?mc_cid=9120b57aeb&mc_eid=8ca2cbfe7e)
 
+[How the Best Forecasters](https://www.scientificamerican.com/article/how-the-best-forecasters-predict-events-such-as-election-outcomes/) Predict Events Such as Election Outcomes
+
+​	
+
 ...
 
 If you want to say hi: [Twitter (@leonardoalencar)](https://twitter.com/LeonardoAlencar)!
