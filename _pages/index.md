@@ -33,6 +33,10 @@ On the weight of the world and the weight of the sky: [Choose joy](https://www.b
 
 The high-return activity of [raising others' aspirations](https://marginalrevolution.com/marginalrevolution/2018/10/high-return-activity-raising-others-aspirations.html)	
 
+'Sistine Chapel of the ancients' [rock art](https://www.theguardian.com/science/2020/nov/29/sistine-chapel-of-the-ancients-rock-art-discovered-in-remote-amazon-forest) discovered in remote Amazon forest	
+
+How Venture Capitalists Are [Deforming Capitalism](https://www.newyorker.com/magazine/2020/11/30/how-venture-capitalists-are-deforming-capitalism)	
+
 ...
 
 If you want to say hi: [Twitter (@leonardoalencar)](https://twitter.com/LeonardoAlencar)!
