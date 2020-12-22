@@ -37,6 +37,8 @@ The high-return activity of [raising others' aspirations](https://marginalrevolu
 
 How Venture Capitalists Are [Deforming Capitalism](https://www.newyorker.com/magazine/2020/11/30/how-venture-capitalists-are-deforming-capitalism)	
 
+Building a Second Brain: [The Illustrated Notes](https://maggieappleton.com/basb)	
+
 ...
 
 If you want to say hi: [Twitter (@leonardoalencar)](https://twitter.com/LeonardoAlencar)!
