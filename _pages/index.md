@@ -39,6 +39,10 @@ How Venture Capitalists Are [Deforming Capitalism](https://www.newyorker.com/mag
 
 Building a Second Brain: [The Illustrated Notes](https://maggieappleton.com/basb)	
 
+How will asset management look in 2030? [The end-game - Doctor's prescription](https://www.economist.com/special-report/2020/11/12/doctors-prescriptions)	
+
+[Talking out loud](https://psyche.co/ideas/talking-out-loud-to-yourself-is-a-technology-for-thinking) to yourself is a technology for thinking
+
 ...
 
 If you want to say hi: [Twitter (@leonardoalencar)](https://twitter.com/LeonardoAlencar)!
