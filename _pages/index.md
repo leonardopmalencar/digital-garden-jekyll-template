@@ -43,6 +43,18 @@ How will asset management look in 2030? [The end-game - Doctor's prescription](h
 
 [Talking out loud](https://psyche.co/ideas/talking-out-loud-to-yourself-is-a-technology-for-thinking) to yourself is a technology for thinking
 
+Marcus Aurelius on [How to Keep Your Mental Composure](https://www.brainpickings.org/2021/04/13/marcus-aurelius-meditations-robin-waterfield/)  and Emotional Equanimity When People Let You Down
+
+Ursula K. Le Guin on [Being a Man](https://www.brainpickings.org/2014/10/17/ursula-k-le-guin-gender/)
+
+[How to Survive a Killer Asteroid](https://www.wired.com/story/how-to-survive-a-killer-asteroid/)
+
+Marcus Aurelius on How to Motivate Yourself to [Get Out of Bed in the Morning and Go to Work](https://www.brainpickings.org/2017/01/03/marcus-aurelius-meditations-bed-work/)
+
+[We can all learn a lesson from Beethoven](https://www.washingtonpost.com/opinions/this-holiday-season-we-can-all-learn-a-lesson-from-beethoven/2019/12/13/71f21aba-1d0e-11ea-b4c1-fd0d91b60d9e_story.html)
+
+[Is Bioelectricity](https://www.newyorker.com/magazine/2021/05/10/persuading-the-body-to-regenerate-its-limbs) the Key to Limb Regeneration? 
+
 ...
 
 If you want to say hi: [Twitter (@leonardoalencar)](https://twitter.com/LeonardoAlencar)!
